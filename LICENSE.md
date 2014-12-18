@@ -1,0 +1,1 @@
+I am not the original creator.  This is has not been released with any license, only I have been given any rights to it by the originator.  Therefore assume you have no rights to this software until the originator releases it under his own license. 
